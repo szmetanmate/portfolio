@@ -8,7 +8,7 @@
 - Google Data Analytics (2024)
 - Pannon Egyetem Veszprém - International Buisness Economics (2021-)
 
-![Coursera SGECR1T93WVP (1)_page-0001](https://github.com/user-attachments/assets/695fc926-ec41-45d0-a438-f0eb42955959)
+![Coursera SGECR1T93WVP (1)_page-0001](https://github.com/user-attachments/assets/382f993f-bc0f-479e-af1a-d107f8f06ce2)
 
 [Verify Certificate](https://coursera.org/share/69668bd083291758426a9a3c45e2db4c)
 
